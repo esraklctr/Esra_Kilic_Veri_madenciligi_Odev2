@@ -1,0 +1,2 @@
+# Esra_Kilic_Veri_madenciligi_Odev2
+Esra_Kilic_Veri_madenciligi_Odev2
